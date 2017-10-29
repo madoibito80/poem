@@ -1,2 +1,2 @@
-# my research
+# my own research
 これはポエムです
